@@ -1,4 +1,4 @@
-##                       CYBER-X TESTING WHATSAPP BOT
+##                       LUO MAGNET
 
 <p align = center>   <img src="https://telegra.ph/file/71c859102f3625d06204b.jpg" alt="GIF" width="250" height="250"/> </p>
 
